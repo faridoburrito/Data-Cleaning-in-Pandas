@@ -65,4 +65,4 @@ Contributions to this project are welcome. If you find any issues or want to add
 
 ## Contact
 
-For any questions or inquiries, please contact farid.fatalizade@gmail.com.
+For any questions or inquiries, please contact me via farid.fatalizade@gmail.com or my LinkedIN profile: https://www.linkedin.com/in/farid-fatalizade/ .
